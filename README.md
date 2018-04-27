@@ -1,2 +1,2 @@
 # Ozeo
-Ozeooo
+Ozeoo
